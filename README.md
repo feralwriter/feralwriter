@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on open source documentation.
 
-📫 How to reach me: feralgit@feralwriter.com
+📫 How to reach me: oogg@yahoo.com
 
 <!---
 feralwriter/feralwriter is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
