@@ -53,7 +53,7 @@ AVAYA, INC., SANTA CLARA , CA — JAN 2014 TO JUN 2016
 - Developed program budgets, managed vendor relationships, and created project specifications.
 
 **SOLUTIONS/PRODUCT MANAGER**  
-CISCO SYSTEMS, INC., SAN JOSE, CA — NOV 2011 TO DECEMBER 2013
+CISCO SYSTEMS, INC., SAN JOSE, CA — NOV 2011 TO DEC 2013
 
 *Managed the development of sales and partner enablement material for the Cisco Smart Business Architecture program.*
 
