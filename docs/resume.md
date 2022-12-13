@@ -2,7 +2,7 @@
 
 jason@willebeek-lemair.net | http://www.linkedin.com/in/jasonwillebeeklemair
 
-*20+ years of experience in defining and driving technical content programs.*
+*20+ years of experience defining and driving technical content programs.*
 
 ## EXPERIENCE
 
