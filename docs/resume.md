@@ -1,6 +1,6 @@
 # Jason Willebeek-LeMair
 
-jason@willebeek-lemair.net | http://www.linkedin.com/in/jasonwillebeeklemair
+feralwriter1@gmail.com | http://www.linkedin.com/in/jasonwillebeeklemair
 
 *20+ years of experience defining and driving technical content programs.*
 
